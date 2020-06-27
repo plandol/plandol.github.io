@@ -13,3 +13,5 @@ Allgemein ungünstig wäre, hier schon den namen des Mörders zu verraten.
 * heute nicht mehr wegzudenken
 
 > Was ist ein Titel ohne Mittel?
+
+<img src="https://cdn.pixabay.com/photo/2016/01/23/09/35/ski-1157166_960_720.jpg"/>
