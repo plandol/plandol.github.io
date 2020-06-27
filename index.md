@@ -12,3 +12,4 @@ Allgemein ungünstig wäre, hier schon den namen des Mörders zu verraten.
 * ab dem 17. Jh. üblich
 * heute nicht mehr wegzudenken
 
+> Was ist ein Titel ohne Mittel?
